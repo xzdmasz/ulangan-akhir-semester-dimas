@@ -1,2 +1,2 @@
-# ulangan-akhir-semester-dimas
-UAS
+# UAS AIK 4 - WEB TATA CARA SHOLAT 
+MOHAMMMAD DIAMS AL FATEH
